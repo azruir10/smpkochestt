@@ -1,2 +1,2 @@
-# smpkochestt
+# smpkochestt.com
 smpkochest.com
